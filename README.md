@@ -1,2 +1,1 @@
-# Mama-postacu-programer
 Nešto
